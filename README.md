@@ -1,9 +1,5 @@
           |
-        \ _ /
-      -= (_) =-
-        /   \         _\/_
-          |           //o\  _\/_
-   _____ _ __ __ ____ _ | __/o\\ _
- =-=-_-__=_-= _=_=-=_,-'|"'""-|-,_
-  =- _=-=- -_=-=_,-"          |
-    =- =- -=.--"
+        \ _ /           A day so happy                                                  γ          v        /|        v
+      -= (_) =-         There was no thing on earth I wanted to possess.                      v            /_|_                γ     
+        /   \           In my body I felt no pain.                                                       \---|---/     v    
+          |             When straightening up, I saw the blue sea and sails.       ~~~~~~~~~~~~~~∝~~~~~~~~`~~~∝~~'~~~~~~~~~~~~~~~~∝~~~~~~
